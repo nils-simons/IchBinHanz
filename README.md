@@ -2,7 +2,7 @@
 
 If you see this you're cool!
 
-## Attention Many repos are still on private.
+## private repos are nice.
 
 I never post things on Twitter sooo, follow me on [Twitter](https://twitter.com/IchBinHanz88).
 
